@@ -1,4 +1,4 @@
-# 🚀 Alien Blaster 3000 🌌
+# 🚀 Space Aliens 3000 🌌
 
 In the not-so-distant future (or maybe Tuesday), aliens have come to Earth… but they didn’t bring snacks. 👽💥
 
